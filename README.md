@@ -2,8 +2,8 @@
 - 👀 I’m interested in a decent few things
 - 🌱 I’m currently learning T-Level DPDD
 - 💞️ I’m looking to collaborate on nothing in particular
-- 📫 How to reach me: don't
-- 😄 Pronouns: i dunno, she/her i guess
+- 📫 How to reach me: azal34000@gmail.com
+- 😄 Pronouns: i already put that on my profile, why would it need to be here as well
 - ⚡ Fun fact: Undertale is a 2015 2D role-playing video game created by American indie developer Toby Fox.                                                                               
 
   .@@@*   =@@@.                     .@@@+   *@@@:                
