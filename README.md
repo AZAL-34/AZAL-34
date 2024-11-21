@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning T-Level DPDD
 - 💞️ I’m looking to collaborate on nothing in particular
 - 📫 How to reach me: don't
-- 😄 Pronouns: i'd rather not come out through github thank you very much
+- 😄 Pronouns: i dunno, she/her i guess
 - ⚡ Fun fact: Undertale is a 2015 2D role-playing video game created by American indie developer Toby Fox.
 
 <!---
