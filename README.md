@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Izeas69
+- 👋 Hi, I’m not @faheemuzzaman
 - 👀 I’m interested in a decent few things
 - 🌱 I’m currently learning T-Level DPDD
 - 💞️ I’m looking to collaborate on nothing in particular
