@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @Izeas69
-- 👀 I’m interested in game design/development and digital music creation.
-- 🌱 I’m currently learning T-Level Digital Production, Design and Development at Newcastle College.
-- 💞️ I’m looking to collaborate on nothing at the moment.
-- 📫 How to reach me: azal34000@gmail.com
-- 😄 Pronouns: she/her
-- ⚡ Fun fact: Undertale is a 2015 2D role-playing video game created by American indie developer Toby Fox.
+- hi, i’m @AZAL-34 would've been AZAL_34 but underscores aren't allowed for some reason
+- i’m interested in game design/development and digital music creation
+- i’m currently learning t-level digital production, design and development at newcastle college
+- i’m looking to collaborate on nothing at the moment
+- how to reach me: azal34000@gmail.com
+- pronouns: she/her
+- fun fact: statistically, i shouldn't exist
