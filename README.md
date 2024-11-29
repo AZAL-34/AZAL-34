@@ -1,4 +1,4 @@
-- hi, i’m @AZAL-34 would've been AZAL_34 but underscores aren't allowed for some reason
+- hi, i’m @AZAL-34 (would've been AZAL_34 but underscores aren't allowed for some reason)
 - i’m interested in game design/development and digital music creation
 - i’m currently learning t-level digital production, design and development at newcastle college
 - i’m looking to collaborate on nothing at the moment
